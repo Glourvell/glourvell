@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on C-pesa<br>🌱 I’m currently learning Python<br>💬 Ask me about gaming, fin-tech, coding<br>⚡ Random fact: I have a 100% trophy on far cry 3
+🔭 I’m currently working on C-pesa<br>💬Avalanche Builders Lead Kenyan Universities<br>🌱 I’m currently learning Python<br>⚡ Random fact: I have a 100% trophy on far cry 3
 
 
 ## 🌐 Socials:
