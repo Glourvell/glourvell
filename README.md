@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Smart-Farm-Kit<br>💬idk just make sure you enjoy life<br>🌱 I’m currently learning 3D Modelling<br>⚡ Random fact: I have a 100% trophy on far cry 3
+🔭 I’m currently working on Smart-Farm-Kit<br>💬idk just make sure you enjoy life<br>🌱 I’m currently learning 3D Modelling<br>⚡ Random fact: I am a huge gamer and believe chapo's should be square
 
 
 ## 🌐 Socials:
